@@ -1,2 +1,2 @@
 # Adi_OS
-idk
+I dont know what's going on
